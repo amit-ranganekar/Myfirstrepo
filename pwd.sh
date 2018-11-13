@@ -7,3 +7,4 @@ Hi Sachin
 Hi Ruhi
 Hi Faizal bhai
 Hi Dinesh
+Hi Fayaz bhai
